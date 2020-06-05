@@ -11,7 +11,23 @@ well that's something about me.
 
 well guys my best compliments comes to my respected teachers who guided me in every way..
 here it goes.....
-![teacher](https://www.nyack.edu/news/teaching-calling-vs-profession/.jpg)
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+![teacher](https://www.dgreetings.com/thank-you-cards/image/thanks-notes-for-teacher-4.jpg)
 Hands are mine,
     but the method is yours.
 Brain is mine,
